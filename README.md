@@ -9,7 +9,7 @@
 
 - 📫 Reach me at **hoangthaihoa2122@gmail.com**
 
-- 📄 Know about my experiences [through my CV](https://drive.google.com/file/d/1iNFdHm1UVUzHmCt0KDwCczYOJWBTKbBx/view?usp=sharing)
+- 📄 Know about my experiences [through my CV](https://drive.google.com/file/d/1OlYZVe2IMKJDFM9HzVCrGCs4p1xN6xaC/view?usp=sharing)
 
 <h3 align="left">Connect with me:</h3>
 <p align="left">
